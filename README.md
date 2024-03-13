@@ -3,7 +3,7 @@
 ✨ pasión por la organización y planificación,
 💌 coleccionista de lenguajes, idiomas y diversas maneras de comunicación y expresión.
 
-
+<br>------------------------
 
  ✍︎ I’m currently studying on Laboratoria Bootcamp
  ☕︎ I’m currently learning the basics
