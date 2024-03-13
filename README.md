@@ -1,16 +1,13 @@
-### Hi there 👋
+🎶 Web developer con tendencias creativas,
+🕵🏻‍♀️ fascinación por el detalle y la calidad,
+✨ pasión por la organización y planificación,
+💌 coleccionista de lenguajes, idiomas y diversas maneras de comunicación y expresión.
 
-<!--
-**Etelbina/Etelbina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ✍︎ I’m currently studying on Laboratoria Bootcamp
+ ☕︎ I’m currently learning the basics
+ ☼ I’m looking to collaborate everiwarw
+ ⚉ I’m always looking for help
+ ⌚︎ Ask me about planning
+ 𝄞 Fun fact: I have an opera degree
