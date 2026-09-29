@@ -1,5 +1,5 @@
 
-_ 🎶 Web developer with creative tendencies,,<br>- 🕵 fascination with detail and quality,<br>- ✨ passion for organization and planning,<br>- 💌 collector of languages, idioms, and various forms of communication and expression.<br><br><br>------------------------<br><br>- ✍︎ I’m currently studying at WGU<br>- ☕︎. I’m currently learning the intermediate<br>- ☼ I’m looking to practice all I can<br>- ⚉. I’m always looking for help<br>- ⌚︎. Ask me about planning<br>- .𝄞. Fun fact: I have an opera degree<br>
+_ 🎶 Software engineer with creative tendencies,<br>- 🕵 fascination with detail and quality,<br>- ✨ passion for organization and planning,<br>- 💌 collector of languages, various forms of communication and expression.<br><br><br>------------------------<br><br>- ✍︎ I’m currently studying at WGU<br>- ☕︎. Keeping my grace while surviving my bachelor’s<br>- ☼ Learning to use AI as a programmer<br>- ⚉. I’m always looking for help<br>- ⌚︎. Ask me about planning<br>- .𝄞. Fun fact: I have an opera degree<br>
 <br/>
 
 ---
